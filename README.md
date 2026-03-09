@@ -6,7 +6,7 @@
 7SUCLOUD 官方地址（备用3）
 [7sucloud04.lol](https://7sucloud04.lol)
 
-官网导航：[7lo.lol](https://7lo.lol)
+官网导航：[7lol.lol](https://7lol.lol)
 
 妥善保存以防失联，发送邮件至 7sucloud@gmail.com 获取最新网址。
 
